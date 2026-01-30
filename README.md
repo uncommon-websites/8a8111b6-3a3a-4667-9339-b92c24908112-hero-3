@@ -1,0 +1,2 @@
+# 8a8111b6-3a3a-4667-9339-b92c24908112-hero-3
+Hero section variant 3 for 8a8111b6-3a3a-4667-9339-b92c24908112
